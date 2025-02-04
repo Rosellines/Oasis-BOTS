@@ -1,7 +1,7 @@
 # Oasis - Distribute.ai BOT
 Oasis - Distribute.ai BOT
 
-- Register Here : [Oasis - Distribute.ai](https://r.distribute.ai/vonssy)
+- Register Here : [Oasis - Distribute.ai](https://r.distribute.ai/122455)
 - Use Code : vonssy
 
 ## Features
